@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CEAE020826HJCJRDA1
+CEAE020826HJCJRDA1
